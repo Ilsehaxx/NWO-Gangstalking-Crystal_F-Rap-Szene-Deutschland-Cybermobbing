@@ -9,3 +9,5 @@ Diese Terroristengruppe [Nazis] hinter der NWO arbeitet mit Staatsanwälten, Pol
 Crystal F wird verwendet, um Gangstalking-Aktivitäten durch die NWO durchzuführen.
 
 Es handelt sich um die größte Nazi-Operation [global] die jemals stattgefunden hat.
+
+Ihr solltet einem Hacker vertrauen, der in 90ern Freenet gehackt hat (und noch für ein paar andere Hacks aus der Zeit verantwortlich war^^)
