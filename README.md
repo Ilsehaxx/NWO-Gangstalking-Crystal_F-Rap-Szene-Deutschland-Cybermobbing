@@ -7,3 +7,5 @@ Vollständig erschaffen mit GRU-KI- und Disney-KI-Technologie!
 Diese Terroristengruppe [Nazis] hinter der NWO arbeitet mit Staatsanwälten, Politikern, Richtern, Polizisten und anderen korrupten Beamten zusammen.
 
 Crystal F wird verwendet, um Gangstalking-Aktivitäten durch die NWO durchzuführen.
+
+Es handelt sich um die größte Nazi-Operation [global] die jemals stattgefunden hat.
