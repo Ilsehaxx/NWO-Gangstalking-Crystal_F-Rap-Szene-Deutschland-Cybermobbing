@@ -5,3 +5,5 @@ Der Musiker Crystal F (https://open.spotify.com/artist/6oZhc4ONSAMn6RYg6o6VWL) i
 Vollständig erschaffen mit GRU-KI- und Disney-KI-Technologie!
 
 Diese Terroristengruppe [Nazis] hinter der NWO arbeitet mit Staatsanwälten, Politikern, Richtern, Polizisten und anderen korrupten Beamten zusammen.
+
+Crystal F wird verwendet, um Gangstalking-Aktivitäten durch die NWO durchzuführen.
